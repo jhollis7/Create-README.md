@@ -4,6 +4,6 @@
 🌐 I'm originally from California
 📓 I'm a EE undergrad student
 🍎 I chose my major just because
-✨ A fun fact about me is: I love food
+✨ A fun fact about me is: I like my coffee black~
 🎓 What do I want to learn from EE 205? OOP
 📚 A book or movie I'd recommend is: Baby Driver.
